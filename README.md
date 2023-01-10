@@ -1,5 +1,4 @@
 Hi there 👋😃  
-Here is some stat on me, you can find more pretty much everywhere 
 
 ### [See more on my website !](https://chadestoupstreiff.github.io)
 
